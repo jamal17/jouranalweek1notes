@@ -1,0 +1,1 @@
+# jouranalweek1notes
